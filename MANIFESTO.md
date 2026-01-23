@@ -300,7 +300,7 @@ I believe we do.
 ---
 
 *Signed,*  
-**[Your name/pseudonym]**  
+Lyle Antoine
 Dene Nation, Fort Simpson, NWT  
 Currently: St. John's, Newfoundland  
 January 2026
